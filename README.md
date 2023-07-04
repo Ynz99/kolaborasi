@@ -1,3 +1,3 @@
 # kolaborasi
 
-asik
+asik kita kita
